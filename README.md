@@ -1,1 +1,7 @@
 git kapat
+
+
+
+
+
+huhg
